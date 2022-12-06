@@ -1,5 +1,5 @@
 Hello, 
 I'm Tyler
 
-Just contact us with questions
+Just contact me with questions
 INFO@TYLERDEV.TECH
